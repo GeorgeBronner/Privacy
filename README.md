@@ -4,6 +4,7 @@ Privacy Policy of all Apps
 
 
 Privacy Policy for all BronnerApp Apps (including: Wher2, NamePocket)
+
 Privacy Policy
 
 Last updated: October 13, 2025
